@@ -14,4 +14,4 @@ Golden, CO
 - Part 107 Certified Commercial Drone Pilot
 - Certified SolidWorks Associate
 
-!(https://www.google.com/url?sa=i&url=https%3A%2F%2Fminesathletics.com%2Ffacilities%2Falumni-field-at-marv-kay-stadium%2F2&psig=AOvVaw0EGhxuKgwQc5VEbq6ox6fo&ust=1707253086349000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPiklsCLlYQDFQAAAAAdAAAAABAE)
+![Jimena MWB Presentation](https://cdn.zenfolio.com/zf/img/null.gif)
