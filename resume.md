@@ -14,4 +14,4 @@ Golden, CO
 - Part 107 Certified Commercial Drone Pilot
 - Certified SolidWorks Associate
 
-![Jimena MWB Presentation](https://cdn.zenfolio.com/zf/img/null.gif)
+![Mario](https://pngimg.com/d/mario_PNG55.png)
