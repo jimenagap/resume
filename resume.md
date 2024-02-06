@@ -14,4 +14,4 @@ Golden, CO
 - Part 107 Certified Commercial Drone Pilot
 - Certified SolidWorks Associate
 
-![Mario](https://pngimg.com/d/mario_PNG55.png)
+![BB8](https://pngimg.com/uploads/starwars/starwars_PNG6.png)
